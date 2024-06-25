@@ -6,8 +6,8 @@
 - 😄 Pronouns: He/him/his 
 - ⚡ Fun fact: I love racoons
 -  /\_/\
-- ( o.o )
--  > ^ <
+-  (o.o)
+-   >^<
 
 <!---
 g-lima96/g-lima96 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
