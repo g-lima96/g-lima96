@@ -4,10 +4,8 @@
 - 💞️ I’m looking to collaborate on artificial intelligence.
 - 📫 How to reach me -> email: gabrielorsolima@gmail.com and Linkedin: https://www.linkedin.com/in/gabriel-mo-lima/ (not a IG user anymore)
 - 😄 Pronouns: He/him/his 
-- ⚡ Fun fact: I love racoons
--  /\_/\
--  (o.o)
--   >^<
+- ⚡ Fun fact: 🦝 I love racoons 🦝
+  
 
 <!---
 g-lima96/g-lima96 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
